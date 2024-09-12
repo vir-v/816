@@ -1,4 +1,4 @@
-# PUŞULABET 816 GİRİŞ PUŞULABET 816 GÜNCEL
+# PUŞULABET 816 GÜNCEL HIZLI GİRİŞ
 
 Puşulabet 816 yeni adresiyle hizmet veriyor. Eğer mevcutta üyeliğiniz varsa hesabınıza giriş için güncellenen adresini kullanabilirsiniz
 
